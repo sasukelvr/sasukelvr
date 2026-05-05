@@ -1,2 +1,3 @@
-<img align="centre" width="580" height="580" alt="tumblr_893a874ca91c6b1f47cf82fab4cb3a35_84fb5182_1280" src="https://github.com/user-attachments/assets/c66be2a2-a64e-45b4-bf5f-3f5e8dc5b82c" />
+<img width="735" height="782" alt="22f7f9caeda73b0a63f33295efadacdf" src="https://github.com/user-attachments/assets/3cbe085e-7859-4b43-ab65-2867dacb3013" />
+
 
